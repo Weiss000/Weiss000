@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Weiss000
-- 👀 I’m interested in doing drugs
+- 👀 I’m interested in doing mushrooms
 - 🌱 I’m currently learning to cope with the harsh reality that is life
 - 📫 You can reach me via Discord: sexyweiss
 
